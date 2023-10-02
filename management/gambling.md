@@ -6,7 +6,7 @@
 
 3. 09/27 - 10/03: Garrett Barber
 
-4. 10/04 - 10/10: NONE
+4. 10/04 - 10/10: Alexander Haurin
 
 5. 10/11 - 10/17: NONE
 
@@ -16,7 +16,7 @@
 
 8. 11/01 - 11/07: NONE
 
-9. 11/08 - 11/14: Alexander Haurin
+9. 11/08 - 11/14: NONE
 
 10. 11/15 - 11/28: (2 weeks, includes thanksgiving)
 
